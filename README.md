@@ -1,4 +1,4 @@
-### Hi there, I involuntarily maintain the realsense repo 🚀🚀🚀
+### Hi there, I involuntarily maintain the realsense repo 💅💅💅
 
 ![image](https://github.com/rjwb1/rjwb1/assets/66944854/f942645c-0279-4f71-8ba0-3a5998784faa)
 
